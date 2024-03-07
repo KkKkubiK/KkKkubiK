@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @KkKkubiK
+- 👀 I’m interested in Coding, Graphic
+- 🌱 I’m currently learning Coding
